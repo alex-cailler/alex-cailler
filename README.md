@@ -1,5 +1,5 @@
 # 💫 About Me:
-Je travail entant que freelance pour ouestfrance<br>
+Je travail entant que freelance pour OuestFrance<br>
 
 
 ## 🌐 Socials:
